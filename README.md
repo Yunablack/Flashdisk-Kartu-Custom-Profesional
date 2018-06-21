@@ -31,7 +31,7 @@ Tidak hanya itu saja, pemesanan untuk souvenir biasanya dalam jumlah besar yang 
 
 Fleksibel
 
-Alasan terakhir banyak orang <a href="http://flashdiskkartu.co.id/" target=_blank>memilih souvenir flashdisk kartu</a> adalah karena bentuknya yang fleksibel.
+Alasan terakhir banyak orang <a href="http://www.flashdiskkartu.id/" target=_blank>memilih souvenir flashdisk kartu</a> adalah karena bentuknya yang fleksibel.
 Pada umumnya, souvenir merupakan benda yang kecil yang biasanya membuat penerima akan mengingat moment dimana souvenir tersebut diberikan. Flashdisk kartu sesuai dengan ukuran souvenir pada umumnya. Selain itu, benda ini juga tidak memakan banyak tempat, bisa dibawa hanya dengan dimasukkan di kantong saku. Hal ini berarti flashdisk tersebut bisa dibawa kemana-mana karena mudah disimpan di mana saja. Bahkan disimpan di dalam dompet bersama dengan kartu seperti kartu ATM atau kartu kredit pun bisa.
 
 Jika diartikan lebih lanjut, souvenir ini sudah pasti berguna dan sangat menguntungkan bagi penerimanya.
